@@ -1,0 +1,2 @@
+# -Penguin
+Welcome to $PENGUIN. Penguin Token aims to solve environmental issues by the power of NFTs on the blockchain. Become a volunteer or even virtually adopt a penguin within our ecosystem, Penguin strives to build a community in a fun and thoughtful way while banding together to clean trash from oceans and beaches around the globe. Our main focus being on preserving marine wildlife such as our beloved penguin friends.
